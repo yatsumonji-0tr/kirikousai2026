@@ -1,1 +1,0 @@
-# kirikousai2026
